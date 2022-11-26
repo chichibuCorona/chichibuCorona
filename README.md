@@ -1,10 +1,21 @@
-- 👋 Hi, I’m @chichibuCorona
-- 👀 I’m interested in grr im angry get off my google account...
-- 🌱 I’m currently learning how to get you off my account with punishment...
-- 💞️ I’m looking to collaborate on quite honestly just a text base choose or loose...
-- 📫 How to reach me i have this git hub profile contact me here...
 
-<!---
-chichibuCorona/chichibuCorona is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+***opening page tital screen*********** tital music************
+*                   *                        *                       *  
+        *                    *     *       
+☆     ////          chichibuCorona            \\\\     ☆            *    
+                              ~~~~~~~~~~~~~~~                           
+           *          *   *    *              *              *           
+     *               *       *    *               *                    * 
+                   *                     *               *           
+    *                *             email~ nope          *           
+        *                *           *                *                 
+      *          *           *          *           *        *         
+   *  CHOOSE OR LOOSE.   *         *           *   *                 *   
+       *                   *                       *       *          
+ *        *                     *                * 
+ (30min to play the game)     *          *                           *  
+       *           *        *           *              *        
+ *       ********ONLY PLAY BETWEEN 3AM - 3:30AM.********   *         *   
+      *       *         ( NO CHEATING )     *       *       *      
+
+     
